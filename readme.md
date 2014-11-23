@@ -5,6 +5,3 @@ sddfsdfdf
 
 ####2. B
 的方法大大方方的
-
-####3. C
-fdfdfddfdfre
